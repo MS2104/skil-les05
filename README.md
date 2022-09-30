@@ -13,6 +13,10 @@
   
 ### Bereiding
 
-Kook de pasta zoals normaal. Giet vervolgens de pasta af en doe er wat olijfolie, kaas en kruiden overheen. Zet nu de pasta in de airfryer of oven en bak het op 200 graden celsius voor 10 minuten. Serveer met saus en eet smakelijk!
+1. Kook de pasta zoals normaal.
+2. Giet vervolgens de pasta af en doe er wat olijfolie, kaas en kruiden overheen.
+3. Zet nu de pasta in de airfryer of oven en bak het op 200 graden celsius voor 10 minuten.  
 
-> De link naar het originele recept vind je [hier.](https://www.cosmopolitan.com/nl/lifestyle/a36900470/viral-tiktok-pasta-chips-recept/)
+#### *Serveer met saus en eet smakelijk!*
+
+##### De link naar het originele recept vind je [hier.](https://www.cosmopolitan.com/nl/lifestyle/a36900470/viral-tiktok-pasta-chips-recept/)
